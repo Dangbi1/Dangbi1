@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @Dangbi1 Đẹp trai nhà giàu học giỏi có xe máy riêng chia tay không đòi quà.~
+- 👋 Hi, I’m @Dangbi1
